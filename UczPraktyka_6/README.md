@@ -1,0 +1,2 @@
+# UczPraktyka_6
+ 
